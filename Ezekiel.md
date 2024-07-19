@@ -20,9 +20,14 @@ The others we know are Gabriel (Messenger) and Michael (Battle)
 # Vision in Heaven
 Like John's vision in Revelation 1 and onwards. 
 
-The sound of many waters.
+## The sound of many waters.
 Rev 1:15 and Ezekiel 1:24
 
 ## Feet like Brass
 Ezekiel 1:7 the creatures feet.
 Daniel 19:6 the get off the figure in his vision
+
+## The Word of the Lord
+Came to him
+## The Hand of the Lord
+Was upon him
