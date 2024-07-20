@@ -17,7 +17,11 @@ Like the 4 Gospels breakdown and the tribes of Israel by their banners
 Creatures are like the angelic beings.. of which Lucifier was one.
 The others we know are Gabriel (Messenger) and Michael (Battle)
 
-# Vision in Heaven
+## The Heavens being opened
+Thinking about the first, second and third heaven.
+Baptism of Christ in Matthew 3 - The Spirit descending and God the Father Speaking.
+
+## Vision in Heaven
 Like John's vision in Revelation 1 and onwards. 
 
 ## The sound of many waters.
