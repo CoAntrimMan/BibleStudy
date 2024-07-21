@@ -3,13 +3,18 @@
 Location: A Captive, taken in the wave after Daniel.
 The Lord often speaks during periods like this.
 
-- The Description of fire - God is frequently shown as a consuming fire.
-Think about the burning bush and other references
-
 ## King Jehoiachin
 https://en.wikipedia.org/wiki/Jeconiah
-19th and penulatimate King of Judah - Taken captive by Neduchadnezzar
-Jeremiah 20:30
+19th and penulatimate King of Judah - Taken captive by Neduchadnezzar 
+_Jeremiah 20:30_
+
+## With who and Where?
+With the fellow captives - God's people
+Where - by the river Che-bar.
+
+The significance of being with believers and at the river - a place of washing and refreshing.
+
+_Psalm 1:3 "and he shall be like a tree planted by the rivers of water, that bringth forth his fruit in his season; his leaf also shall not wither; and whatsoever he doeth shall propser_
 
 ## The Heavens being opened
 Thinking about the first, second and third heaven.
@@ -42,3 +47,8 @@ See - The Word of God.md
 
 ## The Hand of the Lord
 Was upon him
+
+## Consuming Fire
+- The Description of fire - God is frequently shown as a consuming fire.
+Think about the burning bush and other references.
+Refiner Fire
