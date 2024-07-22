@@ -16,6 +16,8 @@ The significance of being with believers and at the river - a place of washing a
 
 _Psalm 1:3 "and he shall be like a tree planted by the rivers of water, that bringth forth his fruit in his season; his leaf also shall not wither; and whatsoever he doeth shall propser_
 
+Remember how quickly Peter denied Christ when in the wrong company at the Crucifiction?
+
 ## The Heavens being opened
 Thinking about the first, second and third heaven.
 Baptism of Christ in Matthew 3 - The Spirit descending and God the Father Speaking.
