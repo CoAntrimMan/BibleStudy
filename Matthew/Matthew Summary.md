@@ -123,3 +123,8 @@ Rich young ruler "Good Master"
 
 Camel eye of the needle.
 
+## Chapter 20:
+The Kingdom
+Labourers hired from early in the morning to the 11th hour.
+The last shall be first and the first shall be last
+For many are called but few are chosen.
