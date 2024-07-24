@@ -138,3 +138,5 @@ betrayal, death on the cross and resurrection.
 Progressive revelation of not just who he is but his purpose.
 Investigate further.
 
+**Jericho**
+Places can hold significance, evoke memories of historical events.
