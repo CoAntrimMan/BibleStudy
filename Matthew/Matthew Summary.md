@@ -128,3 +128,13 @@ The Kingdom
 Labourers hired from early in the morning to the 11th hour.
 The last shall be first and the first shall be last
 For many are called but few are chosen.
+
+Going up to Jerusalem - at Jericho (we later see in vs 29)
+Jesus takes the twelve - explicitly called the twelve apart.
+Twelve is significant - symbollic of the Kingdom and the 12 Tribes.
+
+Christ reveals more explicit details of 'his passion'
+betrayal, death on the cross and resurrection.
+Progressive revelation of not just who he is but his purpose.
+Investigate further.
+
