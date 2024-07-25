@@ -3,6 +3,10 @@
 Location: A Captive, taken in the wave after Daniel.
 The Lord often speaks during periods like this.
 
+When.
+13th year. 5th of the 4th month.
+4th Month Tammuz (Hebrew at least) June/July and warming up.
+
 ## King Jehoiachin
 https://en.wikipedia.org/wiki/Jeconiah
 19th and penulatimate King of Judah - Taken captive by Neduchadnezzar 
