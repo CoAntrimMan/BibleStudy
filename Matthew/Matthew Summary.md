@@ -1,3 +1,4 @@
+# Matthew
 #kingdom
 #Christ
 
@@ -136,7 +137,48 @@ Twelve is significant - symbollic of the Kingdom and the 12 Tribes.
 Christ reveals more explicit details of 'his passion'
 betrayal, death on the cross and resurrection.
 Progressive revelation of not just who he is but his purpose.
+
+Betrayal - someone close. 
+All people groups involved.
+
 Investigate further.
+
+**Mocked** - is explicitly called out.
+"Save thyself"
+"King of the Jews"
+
 
 **Jericho**
 Places can hold significance, evoke memories of historical events.
+
+**The sons of Zebedee**
+The mother of James and John
+Their mother is specifically called out.
+
+She came worshipping, Christ knew she wanted something and asks.
+She has awareness of the Kingdom and requests for places of honour for her sons.
+Is this just the natural desire of a mother?
+
+Sitting at the left and right hand.
+Acknowledging Christ as King.
+
+Christ mentions his Father - did they know who he meant?
+
+Humility and service over power.
+The power dynamic argued for by the post modernist is here challenged.
+
+Christ didn't come to be served but to service - The servant king.
+
+Dispute among the group
+
+**Ransom for many**
+Christ gave his life for the many who will be saved.
+
+**Asking**
+The mother of James and John is something critized for her ask but as we see with the blnd men calling out, Christ is used to people asking and he often answers and meets their request.
+
+
+**Blindness**
+Is there significance in the blindness and sight given to the two men vs James and John and the disciples.
+
+Open our eye Lord!
