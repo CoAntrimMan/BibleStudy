@@ -147,6 +147,19 @@ Investigate further.
 "Save thyself"
 "King of the Jews"
 
+Olympic Christian mockery should be no surprise.
+
+This week I have been reading in Matthew's Gospel account and yesterday morning hit this section where Christ reveals more details (remarkable details) about his crucifixion.
+
+"And shall deliver him to the Gentiles to mock, and to scourge, and to crucify him: and the third day he shall rise again."
+Matthew 20 : 19
+
+It struck me that mocking was specifically listed.
+The Olympic opening ceremony continued that theme and I see many commenting on it, but remember Christ also warned that the world would hate us but ...
+
+"Be not deceived; God is not mocked: for whatsoever a man soweth, that shall he also reap."
+Galatians 6 : 7
+
 
 **Jericho**
 Places can hold significance, evoke memories of historical events.
