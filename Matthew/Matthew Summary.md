@@ -186,6 +186,7 @@ Dispute among the group
 
 **Ransom for many**
 Christ gave his life for the many who will be saved.
+Matthew records a similar statement in 26:28
 
 **Asking**
 The mother of James and John is something critized for her ask but as we see with the blnd men calling out, Christ is used to people asking and he often answers and meets their request.
@@ -194,4 +195,19 @@ The mother of James and John is something critized for her ask but as we see wit
 **Blindness**
 Is there significance in the blindness and sight given to the two men vs James and John and the disciples.
 
+**Two are better than one**
+There are two blind men.
+Jesus sent out the Disciples in pairs.
+It is good to have friends of a similar state
+
+**Son of David**
+The blind men acknowledge him as Christ. They know the messiah would come from David.
+
 Open our eye Lord!
+
+**Compassion and Touch**
+Throughout his ministry his compassion and touch are highlights on several occasions.
+God remembers his promises
+
+
+
