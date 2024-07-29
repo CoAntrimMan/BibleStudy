@@ -209,5 +209,24 @@ Open our eye Lord!
 Throughout his ministry his compassion and touch are highlights on several occasions.
 God remembers his promises
 
+## Chapter 21
+**Christ's ride into Jrusalem**
+
+**The Ass and Colt**
+Zechariah 9:9
+"Rejoice greatly, O Daughter of Zion; 
+shout O Daughter of Jerusalem:
+Behold thy King cometh unto thee: 
+he is just, 
+and having salvation (saving himsef)
+lowly,
+and riding upon an ass
+and upon a colt the foal of an ass
+
+**Meek**
+Matthew uses the word #meek. Meek is not incapable but being able to know when to use power.
+The meek shall inherit the earth.
+
+
 
 
