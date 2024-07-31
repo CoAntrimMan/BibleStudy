@@ -209,6 +209,8 @@ Open our eye Lord!
 Throughout his ministry his compassion and touch are highlights on several occasions.
 God remembers his promises
 
+--------
+
 ## Chapter 21
 **Christ's ride into Jrusalem**
 
@@ -227,6 +229,15 @@ and upon a colt the foal of an ass
 Matthew uses the word #meek. Meek is not incapable but being able to know when to use power.
 The meek shall inherit the earth.
 
+**Entry into Jerusalem**
+**Ho-san-na** - "save now"
+
+**Laying down of clothes and branches**. -Laying all down at his feet.
+No greater love than this...
+
+
+**The city moved** to ask who he is. Is there something here around how we present Jesus and causing others to notice and ask?
+Moved moved but all in different ways. Some to joy, thinking of the consolation of Israel. Others out of evny
 
 
 
