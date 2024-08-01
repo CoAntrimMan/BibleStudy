@@ -29,7 +29,7 @@ God the Father - This is my beloved Son.
 ## Chapter 4:
 Satan - "If thou be the son of God"... seeking signs.
 
-Calls his first discipes
+Calls his first disciples
 
 ## Chapters 5-7 
 Sermon on the mount.
@@ -163,6 +163,7 @@ Galatians 6 : 7
 
 **Jericho**
 Places can hold significance, evoke memories of historical events.
+Remember this is the road on which the good samaritan is told about.
 
 **The sons of Zebedee**
 The mother of James and John
@@ -212,7 +213,7 @@ God remembers his promises
 --------
 
 ## Chapter 21
-**Christ's ride into Jrusalem**
+**Christ's ride into Jerusalem**
 
 **The Ass and Colt**
 Zechariah 9:9
@@ -239,5 +240,7 @@ No greater love than this...
 **The city moved** to ask who he is. Is there something here around how we present Jesus and causing others to notice and ask?
 Moved moved but all in different ways. Some to joy, thinking of the consolation of Israel. Others out of evny
 
-
-
+**Temple Overturned**
+vs 12 onwards.
+When Christ comes into Jerusalem the first place he goes is to the temple.
+_Mark11_  
