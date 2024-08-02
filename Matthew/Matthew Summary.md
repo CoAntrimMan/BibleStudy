@@ -244,3 +244,13 @@ Moved moved but all in different ways. Some to joy, thinking of the consolation 
 vs 12 onwards.
 When Christ comes into Jerusalem the first place he goes is to the temple.
 _Mark11_  
+
+Reading during the 2024 Paris Olympics. Controversy over the opening ceremoney and the mockery of the last supper.
+
+**Righteous Anger**
+John McArthur book - "The Jesus you can't ignore".
+While many would often ask "What would Jesus do?" they often assume that Jesus was often weak and only ever demonstrated compassion.
+
+We see his anger on many occasions to the people, the disciples and of course the religious leaders - see the People and Places folder.
+
+There is a time and place for righteous anger but we also need to balance that with discernment and not have it as a default reaction
