@@ -254,3 +254,11 @@ While many would often ask "What would Jesus do?" they often assume that Jesus w
 We see his anger on many occasions to the people, the disciples and of course the religious leaders - see the People and Places folder.
 
 There is a time and place for righteous anger but we also need to balance that with discernment and not have it as a default reaction
+
+**Court of the Gentiles**
+The Temple - see Temple.md
+
+David has been stopped building the first temple.
+Herod has extended the second temple extensively.. but for his own Glory and favour with the people.
+
+The place that was for the stranger was turned into a busy business and making profit.
