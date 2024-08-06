@@ -262,3 +262,15 @@ David has been stopped building the first temple.
 Herod has extended the second temple extensively.. but for his own Glory and favour with the people.
 
 The place that was for the stranger was turned into a busy business and making profit.
+
+**A House of Prayer**
+Matthew 21v13 - Christ quotes from
+Isaiah 56v7
+In my Bible the headinng is "The happy state of believers" + "Of Sanctification".
+
+Speaking of keeping the sabbath and also the Kingdom when those who were previously cut off are no longer.
+The **eunch**. Believers of covenant / progressive covenant highlight the mulitple reference to the eunch here and then the emphasis on the Eithiopian Eunch who is saved in Acts. A sign that the Kingdom has been restored - at least in part here on the earth.
+
+_7 Even them will I bring to my holy mountain, and make them joyful in my house of prayer: their burnt offerings and their sacrifices shall be accepted upon mine altar; for mine house shall be called an house of prayer for all people._
+
+Another clear link here to the court of the Gentiles
