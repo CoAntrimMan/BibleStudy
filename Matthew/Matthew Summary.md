@@ -274,3 +274,12 @@ The **eunch**. Believers of covenant / progressive covenant highlight the mulitp
 _7 Even them will I bring to my holy mountain, and make them joyful in my house of prayer: their burnt offerings and their sacrifices shall be accepted upon mine altar; for mine house shall be called an house of prayer for all people._
 
 Another clear link here to the court of the Gentiles
+
+**Blind and Lame healed**
+Are there any other group healed more than the blind and lame?
+Blindness was clearly a relatively common issue in this time then we have today with modern medicine and even glasses! - we should always be thankful for the widom given to docter and nurses and others.
+
+Disability has always been a part of the human existance since the fall in the garden of Eden.
+What is the first condition like this that we read about in scripture?
+
+In Genesis 4 we still read about the ability of many
