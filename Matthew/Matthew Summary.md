@@ -282,4 +282,5 @@ Blindness was clearly a relatively common issue in this time then we have today 
 Disability has always been a part of the human existance since the fall in the garden of Eden.
 What is the first condition like this that we read about in scripture?
 
-In Genesis 4 we still read about the ability of many
+In Genesis 4 we still read about the ability of many...
+the dimming of the eyes of Isaac in Genesis 27 is possibly the first we read about a 'disability'
