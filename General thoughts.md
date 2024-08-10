@@ -20,3 +20,12 @@ A well called Shebah... Beer-She-ba
 
 Note how we start the chapter with Isaac loving Rebekah but finish it with him taking wifes of the Hittites and grief in his marriage.
 
+Genesis 32 -"Wrestling with God"
+Jacob become Israel.
+
+Jacob asked for a Blessing and Received it.
+He had received the blessing from his father Isaac after deceit.
+At that stage he was not viewed as being a strong man jet here we have a picture of his wrestling.
+His 20 years with trial and hard work under Laban had made him a man.
+Before he had been mothered and a soilt child.
+
