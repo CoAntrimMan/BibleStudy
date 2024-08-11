@@ -281,6 +281,16 @@ Blindness was clearly a relatively common issue in this time then we have today 
 
 Disability has always been a part of the human existance since the fall in the garden of Eden.
 What is the first condition like this that we read about in scripture?
-
+as
 In Genesis 4 we still read about the ability of many...
 the dimming of the eyes of Isaac in Genesis 27 is possibly the first we read about a 'disability'
+
+## Children
+vs 15/16 we read about the children crying and singing Hosanna (save now) in the temple... yet the chief priests were sore displeased.
+
+Are we encouraging our children to be in the temple?
+Are we encouraging our children when they want to cry unto the Lord in praise.
+Do we realise that the child-like faith is capable of more than our own and that the Lord uses children.
+Psalm 8v2 should have been familiar to the priest.
+
+When we consider all of creation - "thy heavens" are we not all as children?
