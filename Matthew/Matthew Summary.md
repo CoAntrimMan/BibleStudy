@@ -285,7 +285,7 @@ as
 In Genesis 4 we still read about the ability of many...
 the dimming of the eyes of Isaac in Genesis 27 is possibly the first we read about a 'disability'
 
-## Children
+**Children**
 vs 15/16 we read about the children crying and singing Hosanna (save now) in the temple... yet the chief priests were sore displeased.
 
 Are we encouraging our children to be in the temple?
@@ -294,3 +294,12 @@ Do we realise that the child-like faith is capable of more than our own and that
 Psalm 8v2 should have been familiar to the priest.
 
 When we consider all of creation - "thy heavens" are we not all as children?
+
+**Christ Hungered - The fruitless Fig tree**
+It is easy to jump to the account of the fruitless fig tree but Matthew records a couple of notable things.
+
+When thinking about the broader question of who Jesus is, Matthew progressively reveals that he is God. Yet throughout we also have the record of him being the God Man.
+
+vs 17-18 - record that he needed lodging. He needed somewhere to rest/sleep.
+He also got hungry!
+...Westminister Confession..
