@@ -303,3 +303,8 @@ When thinking about the broader question of who Jesus is, Matthew progressively 
 vs 17-18 - record that he needed lodging. He needed somewhere to rest/sleep.
 He also got hungry!
 ...Westminister Confession..
+
+"Of Christ the Mediator"
+.."take upon Him man's nature, with all the essential properties and common infirmities thereof, yet without sin."
+
+
