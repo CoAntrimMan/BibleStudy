@@ -307,4 +307,9 @@ He also got hungry!
 "Of Christ the Mediator"
 .."take upon Him man's nature, with all the essential properties and common infirmities thereof, yet without sin."
 
+Cursing of the Fruitless Fig Tree
+Challenge by the chief priest and elders about this authority.
+His power was undenyable so they challenged its source.
+They did not understand that they themselves were the fruitless fig tree
+
 
