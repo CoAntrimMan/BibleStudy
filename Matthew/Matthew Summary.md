@@ -312,4 +312,16 @@ Challenge by the chief priest and elders about this authority.
 His power was undenyable so they challenged its source.
 They did not understand that they themselves were the fruitless fig tree
 
+**Asking and Receiving**
+vs 22 "and all things, whatsoever ye ask in prayer, believing, ye shall receive"
 
+**Luke** 11 gives us the:
+
+Ask
+Seek
+Knock
+
+**Psalm 107** gives 4 situations when peopl cry unto the Lord and are delivered - but as a Last Resort.
+
+In Daniel when Darius signed the decree of those who wanted to trick Daniel has the decree mention a ban on those asking of any other God.
+We have seen the attempts to stop people even praying outside abortion centre today but in general we have no such restrictions. Would we stand against them if they are imposed?
