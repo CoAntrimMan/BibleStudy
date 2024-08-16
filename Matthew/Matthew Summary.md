@@ -325,3 +325,20 @@ Knock
 
 In Daniel when Darius signed the decree of those who wanted to trick Daniel has the decree mention a ban on those asking of any other God.
 We have seen the attempts to stop people even praying outside abortion centre today but in general we have no such restrictions. Would we stand against them if they are imposed?
+
+**The Question of Authority**
+This is really a trick question from the religious leaders.
+They were mostly concerned about him overturning their authority in the temple - Chirst had just come in and over thrown the tables and won the favour of the children.
+When he returns they were ready for him, or so they thought!
+
+They actually ask two questions
+
+- By what authority
+- Who gave him the authority
+
+There is the source of the power and the ability to use that power.
+
+Remember how Peter and John handled the lame man at the temple
+"In the name of Jesus Christ of Nazareth rise up and walk"
+
+All to God's Glory.
