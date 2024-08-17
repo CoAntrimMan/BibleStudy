@@ -342,3 +342,22 @@ Remember how Peter and John handled the lame man at the temple
 "In the name of Jesus Christ of Nazareth rise up and walk"
 
 All to God's Glory.
+
+Exodus 3 - Moses at the burning bush
+They shall say unto me 'What is his name?'
+The Israelites in Egypt had forgetting who the Lord was.
+
+"I AM" hath sent me.
+
+Moses' rod was the sign of his authority. The connection between earth and heaven. He acted as the mediator.
+
+Pharoh says he knows not the Lord and will not let the people go.
+
+In Daniel the 3 friend refused to bow to the image and in Daniel 3:15 - 
+'who is that God that shall deliver you out of my hands?
+
+The ruling authorities do not respect the Lord and do not like their authority being challenged.
+
+Daniel 4: Nebuchadnezzar worships the Lord.
+
+The Question posed by Christ - John's authority...
