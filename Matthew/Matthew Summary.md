@@ -361,3 +361,9 @@ The ruling authorities do not respect the Lord and do not like their authority b
 Daniel 4: Nebuchadnezzar worships the Lord.
 
 The Question posed by Christ - John's authority...
+
+When we think about our own judicial system, the legal positions are called for their source - "Queen's Council" "King's Council".
+
+"by the power invested in me" is used by the likes of wedding officials to deem that they are performing the judgement or act under a regional power.
+
+"invested in me" denotes that the person has been granted that authority. They have met the requirement and/or training for the role.
