@@ -381,4 +381,9 @@ Matthew is all about his Kingship.
 This is my beloved son in whom I am well pleased - hear him!
 John the Baptist said that he was the forerunner.
 
-Christ's second coming - with power and authority!
+Malachi 3:1 - Behold I will send my messenger, and he shall prepare the way before meL and the LORD whom ye seek, **shall suddenly come to his temple**!
+
+Christ's second coming - with power and authority and Judgement..
+
+Malachi 2:8 - we are told about the priest, how they have departed out of the way, causing many to stumble and corrupted the covenant of Levi.
+
