@@ -387,3 +387,9 @@ Christ's second coming - with power and authority and Judgement..
 
 Malachi 2:8 - we are told about the priest, how they have departed out of the way, causing many to stumble and corrupted the covenant of Levi.
 
+Thinking about Moses in Exodus 34.
+The 1st time he came down the mount with the law ended in judgement, as the people worshipped the golden calf.
+The 2nd time he came down with a message of peace.
+
+With Christ things are reversed. His 1st coming was in peace
+His second will be in judgement
