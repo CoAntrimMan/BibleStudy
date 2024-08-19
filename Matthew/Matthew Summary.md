@@ -379,3 +379,6 @@ Matthew is all about his Kingship.
 
 **Who gave him the Authority?**
 This is my beloved son in whom I am well pleased - hear him!
+John the Baptist said that he was the forerunner.
+
+Christ's second coming - with power and authority!
