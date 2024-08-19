@@ -341,6 +341,8 @@ There is the source of the power and the ability to use that power.
 Remember how Peter and John handled the lame man at the temple
 "In the name of Jesus Christ of Nazareth rise up and walk"
 
+Apostles of the Lord Jesus Christ.
+
 All to God's Glory.
 
 Exodus 3 - Moses at the burning bush
@@ -367,3 +369,13 @@ When we think about our own judicial system, the legal positions are called for 
 "by the power invested in me" is used by the likes of wedding officials to deem that they are performing the judgement or act under a regional power.
 
 "invested in me" denotes that the person has been granted that authority. They have met the requirement and/or training for the role.
+
+King of Kings and Lord of Lord.
+The Alpha and the Omega.
+He who sits in heaven.
+
+It also has to make us consider his judgement, because with authority comes the idea of rule and justice.
+Matthew is all about his Kingship.
+
+**Who gave him the Authority?**
+This is my beloved son in whom I am well pleased - hear him!
