@@ -179,4 +179,10 @@ The 1st time he came down the mount with the law ended in judgement, as the peop
 The 2nd time he came down with a message of peace.
 
 With Christ things are reversed. His 1st coming was in peace
-His second will be in judgement
+His second will be in judgement.
+
+**Psalm 5** - Speaks of the wicked and the house of prayer, those that will stand before the Lord.
+
+**"Destroy thou them, O God; let them fall by their own counsels"**
+This is what Christ does here in Matthew 21.
+
