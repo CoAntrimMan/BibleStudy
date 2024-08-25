@@ -168,7 +168,7 @@ Matthew is all about his Kingship.
 This is my beloved son in whom I am well pleased - hear him!
 John the Baptist said that he was the forerunner.
 
-Malachi 3:1 - Behold I will send my messenger, and he shall prepare the way before meL and the LORD whom ye seek, **shall suddenly come to his temple**!
+Malachi 3:1 - Behold I will send my messenger, and he shall prepare the way before me and the LORD whom ye seek, **shall suddenly come to his temple**!
 
 Christ's second coming - with power and authority and Judgement..
 
@@ -186,3 +186,35 @@ His second will be in judgement.
 **"Destroy thou them, O God; let them fall by their own counsels"**
 This is what Christ does here in Matthew 21.
 
+The heart of the priests and elders revealed.
+In vs 25-27 we see their thinking - their selfishness.
+
+Also a challenge to the unbeliever - What think ye of Christ?
+Are you afraid that you know the truth but refuse to believe it?
+Are you afraid of the people around you that give you the power and position that you have.
+
+Where did the priests and elders get their authority?
+The priestly lines had been lost. Many had simply claimed to be descendents?
+- Research more.
+
+Christ answers with parables.
+
+Husbandman's two son.
+- One refused but then repented and went
+- Second said he would go but did not
+
+Which did the will of his father?
+
+Christ then draws on their thinking around John - he knew their thinking again and tackles it.
+
+The wicked husbandmen.
+- Given the duty by the land owner
+- Beat and killed the servants - John and the prohets
+- Finally sent His Son and they killed him to seize his inheritance
+- They did not reverence the Son.
+
+What will happen?
+The Landowner will destroy the wicked husbandmen and replace them with others who will bring forth his fruit.
+
+Link to an arguement for replacement theology.
+But it was not the full people but rather the leaders and religious rulers.
