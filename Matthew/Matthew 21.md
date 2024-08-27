@@ -218,3 +218,12 @@ The Landowner will destroy the wicked husbandmen and replace them with others wh
 
 Link to an arguement for replacement theology.
 But it was not the full people but rather the leaders and religious rulers.
+
+**The stone the builders rejected**
+Reference to Psalm 118.
+Christ speaks of himself as the stone and the religious rulers are the builders.
+Yet he will become the cornerstone.
+
+**This is the Lord's doing: it is marvellous in our eyes**
+Oh how marvellous...
+
