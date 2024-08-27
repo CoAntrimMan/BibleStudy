@@ -29,3 +29,12 @@ At that stage he was not viewed as being a strong man jet here we have a picture
 His 20 years with trial and hard work under Laban had made him a man.
 Before he had been mothered and a soilt child.
 
+## Psalm 118
+**Give thanks unto the Lord**
+- he is Good
+- enduring mercy
+
+Who:
+- Israel
+- Aaron
+- Them that fear the Lord
