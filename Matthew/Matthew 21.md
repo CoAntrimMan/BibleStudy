@@ -23,6 +23,22 @@ The meek shall inherit the earth.
 **Laying down of clothes and branches**. -Laying all down at his feet.
 No greater love than this...
 
+**Blessed is he that cometh in the name of the Lord**
+Mal 3: 1-4
+The crowd knew who he was.
+Malachi says.
+
+- he is like a refiner's fire
+
+- like fullers' soap
+I was reading Sherlock Holmes and the case of the Engineer's Thumb.
+A rather strange short tale but in the middle of it Fuller's Earth is mentioned as being rare, much sought after and of value. Today is is around £1 per 100 grams. Used as a commerical cleaning agent or bleeching.
+
+- he shall sit as a refiner and purifier of silver
+
+- he shall purify the sons of Levi
+Here he is entering the temple to overturn the table in the temple of the levitical priests
+
 
 **The city moved** to ask who he is. Is there something here around how we present Jesus and causing others to notice and ask?
 Moved moved but all in different ways. Some to joy, thinking of the consolation of Israel. Others out of evny
