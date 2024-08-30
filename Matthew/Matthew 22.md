@@ -12,4 +12,8 @@ As we enter chapter 22 there is not record of what they have ask him but it says
 
 He then relates the parable of the Marriage of the Kings Son..
 
+The Kingdom has a King
+His Son is getting married. There is a significance to marriage that the world has lost. 
+Christ and his bride - the church.
+
 
