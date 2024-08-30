@@ -16,4 +16,6 @@ The Kingdom has a King
 His Son is getting married. There is a significance to marriage that the world has lost. 
 Christ and his bride - the church.
 
+Significance of the dinner - the communion.
+
 
