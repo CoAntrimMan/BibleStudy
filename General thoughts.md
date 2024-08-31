@@ -38,3 +38,18 @@ Who:
 - Israel
 - Aaron
 - Them that fear the Lord
+
+## RBP 2024
+Ephesians 2: 1-10
+
+Note:
+v1 - Our condition before being saved
+
+Result of that condition 2-3
+
+vs 4-7 - But God - the intervention of God
+throught the work of Christ
+
+Grace - 7-8
+
+9-10 - unto good works...
