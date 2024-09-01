@@ -16,6 +16,39 @@ The Kingdom has a King
 His Son is getting married. There is a significance to marriage that the world has lost. 
 Christ and his bride - the church.
 
-Significance of the dinner - the communion.
+Significance of the dinner - the communion and being fed good meat.
+
+The significance of "All things being ready" for the marriage to take place.
+
+"Tell them which are bidden" and "Many are called but few are chosen".
+
+The Responses:
+- 1 made light of it
+- 1 put his farm and 1 his business ahead of it
+- The rest killed those who bid them
+
+The King sent forth his army to destroy them - vengence
+The bidden were not worthy... as many as you can find, bid them.
+From all areas, good and bad.
+
+At the Wedding
+The King comes to see theh Guest
+
+The Importance of Dress, being prepared.
+
+- 1 with no wedding garment
+
+Bound and cast into outter darkness.
+
+Mentioned
+- King - consisent
+- Son - briefy
+- Servants - several batches
+- 1st bidden
+- 2nd bidden
+
+
+
+
 
 
