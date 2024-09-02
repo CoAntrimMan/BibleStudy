@@ -47,6 +47,19 @@ Mentioned
 - 1st bidden
 - 2nd bidden
 
+**Many challengers**
+1 - Priest and Scribes
+Challenge on authority - his
+2 - Pharisees
+In vs 15 they start to make their move, after the Priest and Scribes had been silenced.
+Challenge on the authority - in the sense of paying tribute
+Note: they send out their disciples first, not even themselves.
+Then they challenge on the ressurection, which they did believe in.
+Really they challenge him on the scripture - like the serpent did with eve in the garden and satan did with Christ in the wilderness temptation.
+
+We go through times of trial and temptation but need to stand on the word of God - man does not live by bread alone!
+
+
 
 
 
