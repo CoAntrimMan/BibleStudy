@@ -53,3 +53,10 @@ throught the work of Christ
 Grace - 7-8
 
 9-10 - unto good works...
+
+# The provision of God
+Opened the scriptures to 2 Kings 3:
+
+Thus saith the Lord, Make this valley full of ditches.
+For thus saith the Lord, Ye shall not see wind, neither shall ye see rain: yet that valley shall be filled with water, that ye may drink, both ye and your cattle, and your beasts.
+And this is but a light thing in the sight of the Lord.
