@@ -59,6 +59,10 @@ Really they challenge him on the scripture - like the serpent did with eve in th
 
 We go through times of trial and temptation but need to stand on the word of God - man does not live by bread alone!
 
+Note how John the Baptist and other religious groups had disciples. The model is not unique to Christ.
+Just like today people follow teachers and influencers - particularly on social media and how we list our academic qualifications!
+"I have a 1st from Oxford (St..)"
+
 
 
 
