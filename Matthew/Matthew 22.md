@@ -63,6 +63,22 @@ Note how John the Baptist and other religious groups had disciples. The model is
 Just like today people follow teachers and influencers - particularly on social media and how we list our academic qualifications!
 "I have a 1st from Oxford (St..)"
 
+It is important to be studying under the right teachers. The Pharisees hard the perception of being biblical.
+
+These Disciples of the Pharisees came with flattering words but wickedness in their heart - Matt 22: 15-22
+
+Respect of persons and the Tribute to Caesar.
+
+The Tribute money was a tax
+The Tribute coin bore the image of Casear and reference to him almost being like the "son of god" on one side a a priest on the other according to some, from wikipedia the reservse could have been Pax - spring, new life.
+
+https://en.wikipedia.org/wiki/Tribute_penny
+
+The inscription reads "Ti[berivs] Caesar Divi Avg[vsti] F[ilivs] Avgvstvs" ("Caesar Augustus Tiberius, son of the Divine Augustus"), claiming that after death Augustus had become a god. 
+
+Different Kingdoms
+Rendering unto Caesar for his Kingdom and unto God for his Kingdom.
+
 
 
 
