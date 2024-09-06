@@ -67,7 +67,7 @@ It is important to be studying under the right teachers. The Pharisees hard the 
 
 These Disciples of the Pharisees came with flattering words but wickedness in their heart - Matt 22: 15-22
 
-Respect of persons and the Tribute to Caesar.
+**Respect of persons and the Tribute to Caesar.**
 
 The Tribute money was a tax
 The Tribute coin bore the image of Casear and reference to him almost being like the "son of god" on one side a a priest on the other according to some, from wikipedia the reservse could have been Pax - spring, new life.
@@ -78,6 +78,13 @@ The inscription reads "Ti[berivs] Caesar Divi Avg[vsti] F[ilivs] Avgvstvs" ("Cae
 
 Different Kingdoms
 Rendering unto Caesar for his Kingdom and unto God for his Kingdom.
+
+**Sadducees**
+Up next after the priest, scribes, herodians, disciples of the pharisees comes the Sadducees on the same day.
+
+See Sadducees.md 
+We are here given context that they did not believe in a ressurection and it is relevant to their question.
+
 
 
 
