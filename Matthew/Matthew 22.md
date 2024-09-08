@@ -85,6 +85,18 @@ Up next after the priest, scribes, herodians, disciples of the pharisees comes t
 See Sadducees.md 
 We are here given context that they did not believe in a ressurection and it is relevant to their question.
 
+The Pharisees usuallly cared what the people thought. The Sudducees less so.
+They claimed to focus on the scripture and less on oral tradition, yet Christ again uses scripture to silence them - telling them that they err and know not the scripture. This must have been a brutal claim for them.
+They knew it but didn't know it! We could all fall into this danger.
+
+"nor the power of God" - Christ adds this to their rebutal.
+Remember what the bible say - I am not ashamed of the Gospel
+
+Romans 1: 16 For I am not ashamed of the gospel of Christ: for it is the power of God unto salvation to every one that believeth; to the Jew first, and also to the Greek.
+
+The Sudducees thought they knew the bible but they were not saved. They knew not the power of God, the Gospel.
+
+
 
 
 
