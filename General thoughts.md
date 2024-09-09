@@ -60,3 +60,16 @@ Opened the scriptures to 2 Kings 3:
 Thus saith the Lord, Make this valley full of ditches.
 For thus saith the Lord, Ye shall not see wind, neither shall ye see rain: yet that valley shall be filled with water, that ye may drink, both ye and your cattle, and your beasts.
 And this is but a light thing in the sight of the Lord.
+
+# Psalm 5
+Give ear to my words, O Lord, consider my meditation.
+
+vs 1-3 - David acknowleding God as Lord, my King and my God.
+He speaks of his words, meditation, cry and prayer.
+He seeks the 
+ear of God.
+Consideration
+Hearken unto my cry
+
+In verse 3 we have a commitment from David - in the morning.
+Look up. - His eyes. His voice, His mind.
