@@ -98,7 +98,7 @@ The Sudducees thought they knew the bible but they were not saved. They knew not
 
 The Pharisees see their chance to look better than the Sadducees and this time they send in their heavy gang. - A lawyer - a master in the law (remembering that they had added on many).
 
-**Which is the great commandment in the Law?**
+### Which is the great commandment in the Law?
 Deuteronomy 6 - I wonderful and challenging chapter on the commandments that are to be kept and passed from generation to generation.
 
 The Pharisees should have known this chapter inside out and considered themselves to be the experts in the Law.
@@ -112,6 +112,13 @@ In John 19 he is again seen helping to dress the body of Christ in spices and fr
 In each instance he is called the one of first came to Jesus by night.
 It can be difficult in a workplace 
 of non-believers to completely make a stand or even come out from among them.
+
+
+**On these two commandments hang all the law and the prophets**
+In this concluding section of Matthew 22 - Jesus starts to wrap up the constant questions with this statement.
+All their questions regarding the law and the prophets.
+Oh course the Law and the Prophets = The old Testaments. The Scripture.
+If you are going to ask a question about the scripture - these two commandments should be examined!
 
 
 
