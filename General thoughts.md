@@ -73,3 +73,15 @@ Hearken unto my cry
 
 In verse 3 we have a commitment from David - in the morning.
 Look up. - His eyes. His voice, His mind.
+
+# Proverbs 11: 28-30
+He that trusteth in his riches shall fall: 
+
+The righteous is a tree of life;
+and he that winneth souls is wise.
+
+Who is the only redeemer of God's Elect?
+Christ Jesus.
+
+
+

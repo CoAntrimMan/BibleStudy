@@ -120,7 +120,8 @@ All their questions regarding the law and the prophets.
 Oh course the Law and the Prophets = The old Testaments. The Scripture.
 If you are going to ask a question about the scripture - these two commandments should be examined!
 
-
+Proverbs 11 - He that winneth souls is wise
+Christ is the only redeemer of God's elect and he is on his mission here on earth. He is the ultimate in wisdom.
 
 
 
