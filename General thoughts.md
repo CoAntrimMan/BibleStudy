@@ -83,5 +83,25 @@ and he that winneth souls is wise.
 Who is the only redeemer of God's Elect?
 Christ Jesus.
 
+# Ephesians 6
+The Whole Armour of God
 
+The command:
+Be Strong in the Lord
 
+Put on the whole armour - not part
+
+Why: wiles of the devil. Spiritual warfare.
+So that we can stand!
+
+Open our mouths boldly to proclaimer the Gospel
+
+- Loins girt with Truth
+- Breastplate of Righteousness
+- Feet - preparation of the Gospel
+- Above All
+- Shield of Faith
+- Helmet of Salvation
+- Sword of the Spirit - The Word of God
+
+Praying always
