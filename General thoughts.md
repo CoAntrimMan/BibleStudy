@@ -105,3 +105,20 @@ Open our mouths boldly to proclaimer the Gospel
 - Sword of the Spirit - The Word of God
 
 Praying always
+
+Psalm 18:30
+he is a buckler to all those that trust in him
+
+Isaiah 59
+15: Yea, truth faileth; and he that departeth from evil maketh himself a prey.
+
+The Lord was displeased that there was no judgement.
+There was no man.
+There was no intercessor.
+His arm brought salvation.
+His rigtheousness sustained him.
+
+He put on the righteousness as a breastplate.
+Helmet of salvation.
+Garments of vengence.
+Cloke of zeal.
