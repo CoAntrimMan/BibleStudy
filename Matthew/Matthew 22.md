@@ -123,8 +123,21 @@ If you are going to ask a question about the scripture - these two commandments 
 Proverbs 11 - He that winneth souls is wise
 Christ is the only redeemer of God's elect and he is on his mission here on earth. He is the ultimate in wisdom.
 
+### Christ's turn to Question
+vs42-46
 
+He has once again stumped them and while they were gathered he turns the tables (figuratively) on them.
+**"What think ye of Christ? whose son is he?"**
+Is this not the most important question, in some ways, for everyone?
 
+They did not view him as Christ but understood that the Messiah would come - thinking again about the Kingdom.
+
+They immediately answer the 2nd part of the question - "The Son of David".
+They knew that the line of David was were the Messiah would come from.
+
+Christ follows up by asking them a question from Psalm 110.
+
+"If David then call him Lord, how is he his son?"
 
 
 
