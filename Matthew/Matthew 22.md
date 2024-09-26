@@ -139,5 +139,11 @@ Christ follows up by asking them a question from Psalm 110.
 
 "If David then call him Lord, how is he his son?"
 
+At the end of the chapter we are told that no man was able to either answer him or question him...
+Wisdom beyond our comprehension.
+
+Q. 4. What is God?
+A. God is a Spirit, infinite, eternal, and unchangeable, in his being, wisdom, power, holiness, justice, goodness, and truth.
+
 
 
