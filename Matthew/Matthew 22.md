@@ -145,5 +145,12 @@ Wisdom beyond our comprehension.
 Q. 4. What is God?
 A. God is a Spirit, infinite, eternal, and unchangeable, in his being, wisdom, power, holiness, justice, goodness, and truth.
 
+We think about how Wisdom is given from the Lord.
+Solomon asked for wisdom.
+
+We that even as a child of 12 in the temple how that Christ had astonished them with his reasoning and questioning.
+
+Those who encounter God are left with a feeling of astonishment!
+
 
 
