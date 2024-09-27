@@ -6,3 +6,6 @@ God places people in authority, wither they be good or bad we still repect the o
 
 but that does not mean we follow their error
 "But do not after their work"
+
+Remembering the offices of Christ - Prophet, Priest and King.
+The only one who could fulllfil them correctly.
