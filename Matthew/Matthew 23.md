@@ -19,3 +19,18 @@ Thinking of the Catholic church and the penitentence and indulgences.
 Come unto me, all ye that labour and are heavy laden and I will give you rest..
 Take my yoke upon you and learn of me, for I am meek and lowly in heart: and ye shall find rest unto your souls.
 **For my yoke is easy, and my burden is light.**
+
+Proverbs 6:
+6, yea even 7 things the Lord hates:
+
+- a proud look
+- a lying tongue
+- hands that shed innocent blood
+- a heart that deviseth wicked imaginations
+- feet that be swift in running to mischief
+- a false witness that speaketh lies
+- he that soweth discord among brethern
+
+bind the commandments of thy father - on thine heart and about thy neck.
+
+HOw closely this relates to the religious leaders of the time, who knew these verse.
