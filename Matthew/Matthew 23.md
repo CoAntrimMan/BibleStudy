@@ -33,4 +33,12 @@ Proverbs 6:
 
 bind the commandments of thy father - on thine heart and about thy neck.
 
-HOw closely this relates to the religious leaders of the time, who knew these verse.
+How closely this relates to the religious leaders of the time, who knew these verse.
+
+The contrast between faith and works. James 2.
+Faith without works is dead.
+but the works are as a fruit from the faith. Not as in Matthew 23v5
+
+"But al their works they do for to be seen of men".
+
+They love the high places. They crave and respect and fear of the people - yet they have no fear or reverence of God almighty
