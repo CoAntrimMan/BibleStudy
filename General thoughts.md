@@ -122,3 +122,7 @@ He put on the righteousness as a breastplate.
 Helmet of salvation.
 Garments of vengence.
 Cloke of zeal.
+
+Sat 5th October 2024
+Ballynakelly Mission Hall Harvest Service
+1 Corinthians 15 - The need for the resurection and Christ the First Fruits of the harvest
