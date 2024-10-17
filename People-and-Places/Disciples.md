@@ -29,3 +29,14 @@ Two other Brethren - James and John - mending nets.
 Zebedee gets mentioned several times and is obviously a notable figure - their father. The sons of thunder.
 
 This calling is after the wilderness temptation of Christ by Satan.
+
+Matthew 8 we learn a little more about Peter.
+He is married and his mother-in-law is sick
+
+Matthew 9 - we read about the calling of Matthew himself.
+
+He has entered into 'his own city' Capernium. Matthew 4:13
+
+Matthew sitting at the receipt of custom.
+
+Follow Me
