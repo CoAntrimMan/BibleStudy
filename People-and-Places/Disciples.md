@@ -39,4 +39,15 @@ He has entered into 'his own city' Capernium. Matthew 4:13
 
 Matthew sitting at the receipt of custom.
 
-Follow Me
+Follow Me.
+Like the Fishermen at their day job, did Matthew already know Christ.
+Was this his call simply to full time service and giving up his job.
+Did he give it up?
+We are told in earlier verse how that Christ had many followers and disciples.
+What was a disciple like in those times?
+We know John and others had them.
+
+Chapter 9v14 we even have some called the disciples of John asking Christ about fasting and why his do not not.
+
+Chapter 10 va 1-4 - Christ has called his Twelve Disciples
+
