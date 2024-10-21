@@ -51,3 +51,9 @@ Chapter 9v14 we even have some called the disciples of John asking Christ about 
 
 Chapter 10 va 1-4 - Christ has called his Twelve Disciples
 
+Context: Chapter 9
+
+"The harvest truly is plenteous, but the labourers are few;
+pray ye therefore the Lord of the harvest, that he will send forth labourers into his harvest."
+
+Mark 3: 13-19
