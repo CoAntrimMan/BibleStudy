@@ -56,4 +56,43 @@ Context: Chapter 9
 "The harvest truly is plenteous, but the labourers are few;
 pray ye therefore the Lord of the harvest, that he will send forth labourers into his harvest."
 
+Matthews List
+
+- Simon Peter
+- Andrew his brother
+- James the son of Zebedee
+- John his brother
+- Philip
+- Bartholomew
+- Thomas
+- Matthew
+- James the son of Alphaeus
+- Lebbaeus Thaddaeus
+- Simon the Canaanite
+- Judas Iscariot - who also betrayed him
+
+
 Mark 3: 13-19
+
+Mark reveals that this happened in a mountain
+
+He ordained 12 to be with him and to
+
+- send forth to preach.
+- heal sickness
+- cast out devils
+
+- Simon Peter
+- James the son of Zebedee
+- John is brother- both called Boanerges - Sons of Thunder
+- Andrew
+- Philip
+- Bartholomew
+- Matthew
+- Thomas
+- James and son of Apphaeus
+- Thaddaeus
+- Simon the Canaanite
+- Judas Iscariot
+
+
