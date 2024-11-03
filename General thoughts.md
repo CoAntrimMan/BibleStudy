@@ -126,3 +126,11 @@ Cloke of zeal.
 Sat 5th October 2024
 Ballynakelly Mission Hall Harvest Service
 1 Corinthians 15 - The need for the resurection and Christ the First Fruits of the harvest.
+
+# Judges
+Judges 1 and 2 details how the majority of the tribes did not drive out the inhabitants of the land.
+when they were strong they dwelt among them.
+
+Judges 2 speaks to how another generation arose that knew not thr Lord nor the works he had done.
+
+They end up serving other gods.
