@@ -134,3 +134,17 @@ when they were strong they dwelt among them.
 Judges 2 speaks to how another generation arose that knew not thr Lord nor the works he had done.
 
 They end up serving other gods.
+
+_---------
+
+Abounding and Abased
+
+Philippians 4.
+
+Knowing contentment in our circumstances.
+When we have plenty we are not always content.
+When we are abased do we sometimes appreciate the important things more.
+
+Prayer to know the peace of God. Which passes all understanding.
+
+
