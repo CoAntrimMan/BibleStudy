@@ -147,4 +147,18 @@ When we are abased do we sometimes appreciate the important things more.
 
 Prayer to know the peace of God. Which passes all understanding.
 
+22/11/24
+The first shall be last.
 
+In our culture we now teach people to build their own profile. Personal brand building.
+
+Of course Christ taught his disciples that the first shall be last.
+
+in Ecclesiastes 10:
+
+"I have seen servants upon horses, and princes walking as servants upon the earth."
+
+he goes on to speak of how many will be injured by their profession.
+
+If the iron be blunt, and he do not whet the edge, then must he put to more strength:
+but wisdom is profitable to direct
