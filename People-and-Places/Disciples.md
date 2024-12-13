@@ -1,5 +1,23 @@
 There were Twelve Disciples...or Thirteen..or Fourteen.
 
+Peter and Andrew - Brothers / Fishermen
+Peter - Rock
+
+James, John and Philip - also fishermen
+
+Matthew tax collector
+
+Judas - treasurer
+Thaddeus - 
+
+Simon the Zeolot - political 
+
+Bartholomew 
+
+Thomas - a Twin
+
+
+
 **John 1:**
 
 John the Baptist had his own disciples.
@@ -16,7 +34,9 @@ From Bethsaida
 The next day Jesus went to Galilee:
 Philip also of Bethsaida
 
-Philip witnessed to Nathanael
+Philip witnessed to Nathanael (Bartholomew)
+
+
 
 **Matthew 4**
 Jesus walking by the sea of Galilee and saw two brethren.
@@ -70,6 +90,17 @@ Matthews List
 - Lebbaeus Thaddaeus
 - Simon the Canaanite
 - Judas Iscariot - who also betrayed him
+
+Their calling:
+
+Firstly they are called to the "lost sheep of the house of Israel".
+- Preach - the Kingdom of Heaven is at hand
+- Heal the sick
+- Cleanse the leper
+- Raise the dead
+- Cast out devils
+
+We don't read of them doing any of this until Acts?
 
 
 Mark 3: 13-19

@@ -135,6 +135,20 @@ Judges 2 speaks to how another generation arose that knew not thr Lord nor the w
 
 They end up serving other gods.
 
+<<<<<<< HEAD
+Matthew 10 - More value than many sparrows
+He knows the hairs on our heads.
+
+Undoubtedly God knows all things. Of that we can be sure but this specific message was to the 12 he called.
+
+It comes with extra context. That we need to no be ashamed to confess Christ before men. He then will likewise confess us before his Father in heaven.
+
+There is a strong call that to be a disciple we must deny self and serve God.
+Taking up his cross.... Note that he used this term during his life and before Calvary.
+
+Was the term "cross to bear" a phrase before the crucifixtion?
+Possibly.
+=======
 _---------
 
 Abounding and Abased
@@ -162,3 +176,4 @@ he goes on to speak of how many will be injured by their profession.
 
 If the iron be blunt, and he do not whet the edge, then must he put to more strength:
 but wisdom is profitable to direct
+>>>>>>> 843578de6329b0d5faeac4f0ed6fa84356e9d082
